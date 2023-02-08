@@ -10,4 +10,4 @@ Saiba aqui o que é habilidade verde, como adquirir e porque isso é tão import
 [Habilidade Verde: A nova Fronteira profissional](https://soluinvest.com/startup-como-iniciar-uma-jornada/habilidade-verde-a-nova-fronteira-profissional)
 
 Atualização diária<br>
-Soluinvest Web Stories [https://soluinvest.com/web-stories]
+[Soluinvest Web Stories](https://soluinvest.com/web-stories)
